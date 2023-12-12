@@ -3,7 +3,7 @@
 <h1 align="center"> ~🔥 ~𝓑𝓮𝓶-𝓿𝓲𝓷𝓭𝓸𝓼 𝓪𝓸 𝓶𝓮𝓾 𝓹𝓮𝓻𝓯𝓲𝓵~ 🔥~</h1>
 <br>
 <div align="center">
-    <img src="https://imgur.com/MEFsb1x.gif">
+    <img src="https://imgur.com/h2rCZBa.gif">
 </div>
 <br>
 <div>
